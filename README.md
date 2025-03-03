@@ -1,5 +1,4 @@
-# 👋 Hi, I'm [Your Name]  
-
+# 👋 Hi, I'm Rabindra Bahadur Gharati Magar
 🚀 Tech Enthusiast | Blogger | 🌍 Server Manager | 🎤 Web Designer  
 
 ## 🌟 About Me  
