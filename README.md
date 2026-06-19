@@ -22,7 +22,7 @@ I'm passionate about technology, blogging, and web designing. My work spans from
 - 📺 **Moongfali Shorts** - A creative YouTube channel  
 
 ### 📫 Let's Connect!  
-- 🌍 [Mail](mailto:contact@rbgm.com.np)  
+- 🌍 [contact@rbgm.com.np](mailto:contact@rbgm.com.np)  
 - 📧 Contact me for collaborations & opportunities!  
 
 💡 _"Dream big, create bigger!"_ 🎥🚀
